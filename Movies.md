@@ -29,3 +29,20 @@
 使他陷入了一场两年之久的法律噩梦。 亚伦的故事也触动了对他如雷贯耳的网络社区之外的人们。
 
 **douban** https://movie.douban.com/subject/25785114/
+
+### 激战
+
+国产片 mma打斗爽片 一般
+
+**douban** https://movie.douban.com/subject/20388223/
+
+### 电锯惊魂I
+
+杀手先生告诉俺们即使在生命的尽头还是能干成很多事情滴
+
+**douban** https://movie.douban.com/subject/1417598/
+
+### 电锯惊魂II
+
+**douban** https://movie.douban.com/subject/1309045/
+
