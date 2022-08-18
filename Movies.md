@@ -32,6 +32,9 @@
 - [x] 北欧人
 - [x] lucky
 - [x] 银行家
+- [x] coda
+- [x] ted lasso 美剧 :+1:
+- [x] 黑色电话
 
 # WantToWatch
 
